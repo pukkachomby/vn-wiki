@@ -60,3 +60,11 @@
 * His only minor regret is not purchasing land in Thao Dien years ago when it was significantly cheaper.
 * https://news.tuoitre.vn/from-outsider-to-insider-over-3-decades-of-vietnams-economy-through-eyes-of-british-entrepreneur-103250915110307288.htm
 
+# Ho Chi Minh City’s severe land subsidence heightens flood risks: study
+* Ho Chi Minh City is sinking at an average rate of 2-5 centimeters per year, worsening flood risks.
+* In densely developed areas, the subsidence rate accelerates to 7-8 centimeters annually.
+* This sinking, faster than sea level rise, severely impacts daily life and the city's economy.
+* Key causes include weak geology, groundwater decline, construction, and rapid urbanization.
+* Experts warn the city's subsidence now surpasses that of Jakarta, which is relocating its capital.
+* A major flood prevention project is underway, with the tidal mitigation phase 93% complete.
+* https://news.tuoitre.vn/ho-chi-minh-citys-severe-land-subsidence-heightens-flood-risks-study-103250915163107199.htm

@@ -68,3 +68,12 @@
 * Experts warn the city's subsidence now surpasses that of Jakarta, which is relocating its capital.
 * A major flood prevention project is underway, with the tidal mitigation phase 93% complete.
 * https://news.tuoitre.vn/ho-chi-minh-citys-severe-land-subsidence-heightens-flood-risks-study-103250915163107199.htm
+
+# Vietnam education ministry proposes teaching Lao, Khmer, Thai, Indonesian in schools
+* Vietnam's Education Ministry proposes adding Lao, Khmer, Thai, and Indonesian to the national curriculum.
+* The planned rollout is Lao in 2026, Khmer in 2028, and both Thai and Indonesian in 2030.
+* This initiative is for schools with sufficient demand and resources, aiming to boost regional cooperation.
+* Currently, seven foreign languages are approved, with English being the most common.
+* The ministry will focus on developing the teaching workforce, including adding more native speakers.
+* New learning materials and the use of AI and tech platforms are also part of the strategy.
+* https://news.tuoitre.vn/vietnam-education-ministry-proposes-teaching-lao-khmer-thai-indonesian-in-schools-103250915173213663.htm

@@ -59,3 +59,4 @@
 * He advises new international business leaders in Vietnam to learn the culture and history and remain flexible to ensure long-term success.
 * His only minor regret is not purchasing land in Thao Dien years ago when it was significantly cheaper.
 * https://news.tuoitre.vn/from-outsider-to-insider-over-3-decades-of-vietnams-economy-through-eyes-of-british-entrepreneur-103250915110307288.htm
+

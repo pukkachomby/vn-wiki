@@ -51,15 +51,6 @@
 * The new policy, aimed at promoting digital travel services, will be fully enforced on December 1.
 * https://news.tuoitre.vn/vietnam-to-require-electronic-id-or-kiosks-for-most-flight-procedures-from-december-103250914192028715.htm
 
-# From outsider to insider: Over 3 decades of Vietnam’s economy through eyes of British entrepreneur
-* Kenneth Atkinson, founder of Grant Thornton Vietnam, reflects on his 35-year journey in Vietnam, which he describes as a "breath of fresh air" and his "second home."
-* His memoir, 'Never Say No,' chronicles the country's economic evolution and his experiences, emphasizing the importance of understanding local culture for business success.
-* The title originates from his tendency to always be open to opportunities, a trait that became a key strength in his career and relationship-building.
-* Atkinson, an OBE recipient also known by his Vietnamese name Pham Kien Son, is proud of his legacy, including his community involvement with organizations like Operation Smile.
-* He advises new international business leaders in Vietnam to learn the culture and history and remain flexible to ensure long-term success.
-* His only minor regret is not purchasing land in Thao Dien years ago when it was significantly cheaper.
-* https://news.tuoitre.vn/from-outsider-to-insider-over-3-decades-of-vietnams-economy-through-eyes-of-british-entrepreneur-103250915110307288.htm
-
 # Ho Chi Minh City’s severe land subsidence heightens flood risks: study
 * Ho Chi Minh City is sinking at an average rate of 2-5 centimeters per year, worsening flood risks.
 * In densely developed areas, the subsidence rate accelerates to 7-8 centimeters annually.
@@ -77,4 +68,3 @@
 * The ministry will focus on developing the teaching workforce, including adding more native speakers.
 * New learning materials and the use of AI and tech platforms are also part of the strategy.
 * https://news.tuoitre.vn/vietnam-education-ministry-proposes-teaching-lao-khmer-thai-indonesian-in-schools-103250915173213663.htm
-

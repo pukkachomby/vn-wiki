@@ -79,3 +79,4 @@
 * The author believes the current generation of learners may become guinea pigs in a risky AI experiment.
 * AI can be a supportive tool in ESL, but it cannot replace the mentorship and connection of a human teacher.
 * https://news.tuoitre.vn/is-ai-replacing-english-teachers-in-vietnam-103250915151348453.htm
+

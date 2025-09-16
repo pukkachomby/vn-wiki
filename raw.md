@@ -69,3 +69,13 @@
 * New learning materials and the use of AI and tech platforms are also part of the strategy.
 * https://news.tuoitre.vn/vietnam-education-ministry-proposes-teaching-lao-khmer-thai-indonesian-in-schools-103250915173213663.htm
 
+
+# Is AI replacing English teachers in Vietnam?
+* An ESL teacher in Vietnam with 12 years of experience was replaced by an AI-based English learning system.
+* AI systems look impressive to CEOs and school principals, promising to save money.
+* The author argues that these systems are like "snake oil" and lack the human element of teaching.
+* AI is good for vocabulary and grammar but fails at teaching the nuances of oral communication and storytelling.
+* Learners were not consulted about the switch to AI, and they value the human aspect of learning communication.
+* The author believes the current generation of learners may become guinea pigs in a risky AI experiment.
+* AI can be a supportive tool in ESL, but it cannot replace the mentorship and connection of a human teacher.
+* https://news.tuoitre.vn/is-ai-replacing-english-teachers-in-vietnam-103250915151348453.htm

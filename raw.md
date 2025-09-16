@@ -68,3 +68,4 @@
 * The ministry will focus on developing the teaching workforce, including adding more native speakers.
 * New learning materials and the use of AI and tech platforms are also part of the strategy.
 * https://news.tuoitre.vn/vietnam-education-ministry-proposes-teaching-lao-khmer-thai-indonesian-in-schools-103250915173213663.htm
+

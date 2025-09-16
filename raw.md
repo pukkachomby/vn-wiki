@@ -80,3 +80,12 @@
 * AI can be a supportive tool in ESL, but it cannot replace the mentorship and connection of a human teacher.
 * https://news.tuoitre.vn/is-ai-replacing-english-teachers-in-vietnam-103250915151348453.htm
 
+# Nearly 233,000 calls made to Vietnam’s child protection hotline in 8 months
+* Vietnam's child hotline 111 received nearly 233,000 calls in the first 8 months of 2025.
+* The hotline gave 22,037 counseling sessions and intervened in 825 cases, protecting 969 children.
+* Calls in August 2025 surged by 37% compared to July, reaching 36,486.
+* Child violence was the main concern, accounting for over 50% of cases in July and August.
+* While sexual abuse cases fell, some serious incidents resulted in teen pregnancies.
+* Online child abuse is on the rise, often involving blackmail and luring on social media.
+* The 24/7 hotline takes reports via phone, Zalo, a mobile app, Facebook, and email.
+* https://news.tuoitre.vn/nearly-233000-calls-made-to-vietnams-child-protection-hotline-in-8-months-103250916152921994.htm

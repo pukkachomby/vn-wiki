@@ -89,3 +89,15 @@
 * Online child abuse is on the rise, often involving blackmail and luring on social media.
 * The 24/7 hotline takes reports via phone, Zalo, a mobile app, Facebook, and email.
 * https://news.tuoitre.vn/nearly-233000-calls-made-to-vietnams-child-protection-hotline-in-8-months-103250916152921994.htm
+
+# Vietnam to adopt a nationwide unified textbook set from 2026-27 school year
+* Vietnam to adopt a unified textbook set nationwide from the 2026-27 school year.
+* Textbooks will be provided free of charge to all students starting in 2030.
+* This ends the current system which uses three different sets of textbooks.
+* A new preschool curriculum will emphasize hands-on activities and STEAM learning.
+* General education will see more instructional time for science, technology, and informatics.
+* Assessment methods will be reformed to curb the practice of private tutoring.
+* English is expected to gradually become a second language in schools.
+* Digital transformation will be prioritized with e-textbooks and online platforms.
+* Vocational and higher education will be reformed to improve the workforce and talent.
+* https://news.tuoitre.vn/vietnam-to-adopt-a-nationwide-unified-textbook-set-from-2026-103250916191323736.htm

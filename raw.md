@@ -101,3 +101,11 @@
 * Digital transformation will be prioritized with e-textbooks and online platforms.
 * Vocational and higher education will be reformed to improve the workforce and talent.
 * https://news.tuoitre.vn/vietnam-to-adopt-a-nationwide-unified-textbook-set-from-2026-103250916191323736.htm
+
+# Truck driver arrested after crashing into Vietnam market, killing 3
+* A truck driver was arrested after crashing into a banana market in Quang Tri Province, killing three and injuring nine.
+* Tran Minh Hoang, 52, was detained for "violating road traffic regulations" after veering into the wrong lane.
+* The accident happened as the truck was descending a steep hill on National Route 9 near a red light.
+* The driver tested negative for both alcohol and drugs.
+* Two of the three deceased vendors were Lao nationals.
+* https://e.vnexpress.net/news/news/traffic/truck-driver-arrested-after-crashing-into-vietnam-market-killing-3-4940520.html

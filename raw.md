@@ -118,3 +118,14 @@
 * The alleged main leader, a Russian man, remains at large.
 * Two other Ukrainians and a Russian were previously sentenced to 20 years for their roles.
 * https://e.vnexpress.net/news/news/crime/indonesian-court-sentences-ukrainian-man-to-life-for-producing-illegal-drugs-in-bali-4941120.html
+
+# Vietnam sees over 84,000 tobacco deaths annually: statistics
+* Tobacco kills over 84,500 people in Vietnam annually, more than 230 per day.
+* Worldwide, tobacco is responsible for about eight million deaths each year.
+* A "Smoke-Free Healthcare Facilities" contest has been launched to address the issue.
+* Smoking in hospitals seriously affects vulnerable patients with weak immune systems.
+* Secondhand smoke exposure in healthcare facilities dropped to 21.3% in 2023 from 23.6% in 2010.
+* Patient counseling for smoking cessation increased to 90% in 2023 from 40.5% in 2015.
+* Enforcing smoking bans in healthcare facilities remains challenging due to discreet violations.
+* Experts call for stronger sanctions and greater public awareness to ensure compliance.
+* https://news.tuoitre.vn/vietnam-sees-over-84000-tobacco-deaths-annually-statistics-103250919190645165.htm

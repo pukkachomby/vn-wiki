@@ -129,3 +129,12 @@
 * Enforcing smoking bans in healthcare facilities remains challenging due to discreet violations.
 * Experts call for stronger sanctions and greater public awareness to ensure compliance.
 * https://news.tuoitre.vn/vietnam-sees-over-84000-tobacco-deaths-annually-statistics-103250919190645165.htm
+
+# 7th grader yanks teacher's hair, drags her to ground over confiscated toy in Vietnam
+* A 7th-grade boy in Hanoi attacked his teacher to get back a confiscated toy.
+* The incident was caught on video, which went viral and caused public outrage.
+* The boy's family requested a 10-day leave from school for home discipline.
+* The teacher has forgiven the student, understanding he is going through puberty.
+* The education ministry called the case "serious" and urged for better school safety.
+* New rules will make the harshest punishment a self-criticism report signed by the student and family.
+* https://e.vnexpress.net/news/news/education/7th-grader-yanks-teacher-s-hair-drags-her-to-ground-over-confiscated-toy-in-vietnam-4941456.html

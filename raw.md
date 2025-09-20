@@ -139,3 +139,17 @@
 * New rules will make the harshest punishment a self-criticism report signed by the student and family.
 * https://e.vnexpress.net/news/news/education/7th-grader-yanks-teacher-s-hair-drags-her-to-ground-over-confiscated-toy-in-vietnam-4941456.html
 
+
+# Việt Nam, South Korea boost AI, semiconductor cooperation
+* Việt Nam and South Korea will enhance cooperation in AI and semiconductors.
+* The agreement covers policy consultation, human resource development, and R&D.
+* It also includes technology transfer, information exchange, and ecosystem building.
+* https://vietnamnews.vn/economy/1725635/viet-nam-south-korea-boost-ai-semiconductor-cooperation.html
+
+# No more expulsions: new rules shift school discipline towards education
+* Việt Nam abolishes school expulsion, favoring educational discipline.
+* Students will now write self-reflection essays for misconduct instead.
+* Primary school measures are limited to verbal warnings and requiring apologies.
+* The new rules strictly prohibit physical punishment, humiliation, or public criticism.
+* The aim is to help students recognize their behavior and learn from mistakes.
+* https://vietnamnews.vn/society/1725497/no-more-expulsions-new-rules-shift-school-discipline-towards-education.html

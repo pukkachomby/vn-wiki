@@ -109,3 +109,4 @@
 * The driver tested negative for both alcohol and drugs.
 * Two of the three deceased vendors were Lao nationals.
 * https://e.vnexpress.net/news/news/traffic/truck-driver-arrested-after-crashing-into-vietnam-market-killing-3-4940520.html
+

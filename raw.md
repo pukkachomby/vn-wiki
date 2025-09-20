@@ -110,3 +110,11 @@
 * Two of the three deceased vendors were Lao nationals.
 * https://e.vnexpress.net/news/news/traffic/truck-driver-arrested-after-crashing-into-vietnam-market-killing-3-4940520.html
 
+# Indonesian court sentences Ukrainian man to life for producing illegal drugs in Bali
+* A Ukrainian man, Roman Nazarenko, was sentenced to life in prison in Bali for producing illegal drugs.
+* He was arrested in Thailand after being on the run for seven months as an Interpol fugitive.
+* Police found a lab for growing marijuana and producing ecstasy precursors in a villa basement.
+* Prosecutors identified him as a mastermind, though he claimed he was tricked into the drug ring.
+* The alleged main leader, a Russian man, remains at large.
+* Two other Ukrainians and a Russian were previously sentenced to 20 years for their roles.
+* https://e.vnexpress.net/news/news/crime/indonesian-court-sentences-ukrainian-man-to-life-for-producing-illegal-drugs-in-bali-4941120.html

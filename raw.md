@@ -153,3 +153,29 @@
 * The new rules strictly prohibit physical punishment, humiliation, or public criticism.
 * The aim is to help students recognize their behavior and learn from mistakes.
 * https://vietnamnews.vn/society/1725497/no-more-expulsions-new-rules-shift-school-discipline-towards-education.html
+
+# Foreign tourists cheer bus driver who saved them from head-on crash in Vietnam
+* A bus driver in northern Vietnam averted a head-on collision with a truck carrying foreign tourists.
+* The truck recklessly swerved into the wrong lane on a blind curve while trying to overtake another vehicle.
+* The bus driver's quick thinking and braking prevented a disaster, earning cheers from the passengers.
+* The incident happened on September 21 along National Highway 2 in Tuyen Quang Province.
+* Overtaking on blind curves is strictly prohibited in Vietnam and carries heavy penalties.
+* https://e.vnexpress.net/news/news/traffic/foreign-tourists-cheer-bus-driver-who-saved-them-from-head-on-crash-in-vietnam-4942096.html
+
+# Vietnam bans trucks, passenger buses from running next to median along 2 major expressways
+* Trucks & buses over 29 seats are banned from the innermost lane on Phap Van – Cau Gie & Hanoi – Hai Phong Expressways.
+* This new regulation, effective September 19, is intended to improve traffic safety and lane discipline.
+* On Phap Van – Cau Gie, lane 1 speed is 80-100 km/h, lane 2 is 70-100 km/h, and lane 3 is 60-100 km/h.
+* On Hanoi – Hai Phong, lane 1 speed is 90-120 km/h, lane 2 is 80-120 km/h, and lane 3 is 60-100 km/h.
+* U-turns are not permitted, and emergency lanes are only for breakdowns or genuine emergencies.
+* https://news.tuoitre.vn/vietnam-bans-trucks-passenger-buses-from-running-next-to-median-along-2-major-expressways-10325092211210203.htm
+
+# Hanoi middle schooler assaults teacher in class
+* A video shows a student in Hanoi pulling a teacher’s hair and throwing her to the ground.
+* The assault happened after the teacher confiscated a sharp toy from another student.
+* The student demanded the toy back and attacked the teacher when she refused.
+* Classmates looked on without intervening, and the class monitor had the curtains closed.
+* The student later apologized, and his parents sought mental health checks for him.
+* Authorities are investigating the incident and the unauthorized release of the video.
+* The event has sparked a debate in Vietnam about school discipline and student behavior.
+* https://news.tuoitre.vn/hanoi-middle-schooler-assaults-teacher-in-class-10325092220042604.htm

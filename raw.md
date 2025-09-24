@@ -179,3 +179,10 @@
 * The event has sparked a debate in Vietnam about school discipline and student behavior.
 * https://news.tuoitre.vn/hanoi-middle-schooler-assaults-teacher-in-class-10325092220042604.htm
 
+# 3 arrested in Hanoi over illegal dumping of septic waste into To Lich River
+* Police arrested three people for illegally dumping septic waste into Hanoi's To Lich River.
+* Nearly 50 cubic meters of untreated waste were discharged into a storm drain leading to the river.
+* The truck used was registered to a private company that lacked a waste handling permit.
+* The dumping caused strong odors, severe pollution, and damaged local infrastructure.
+* This act violated city policies aimed at improving the water quality of the To Lich River.
+* https://news.tuoitre.vn/3-arrested-in-hanoi-over-illegal-dumping-of-septic-waste-into-to-lich-river-103250924124112862.htm

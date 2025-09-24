@@ -139,7 +139,6 @@
 * New rules will make the harshest punishment a self-criticism report signed by the student and family.
 * https://e.vnexpress.net/news/news/education/7th-grader-yanks-teacher-s-hair-drags-her-to-ground-over-confiscated-toy-in-vietnam-4941456.html
 
-
 # Việt Nam, South Korea boost AI, semiconductor cooperation
 * Việt Nam and South Korea will enhance cooperation in AI and semiconductors.
 * The agreement covers policy consultation, human resource development, and R&D.

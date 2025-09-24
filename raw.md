@@ -178,3 +178,4 @@
 * Authorities are investigating the incident and the unauthorized release of the video.
 * The event has sparked a debate in Vietnam about school discipline and student behavior.
 * https://news.tuoitre.vn/hanoi-middle-schooler-assaults-teacher-in-class-10325092220042604.htm
+

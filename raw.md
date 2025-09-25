@@ -187,3 +187,150 @@
 * This act violated city policies aimed at improving the water quality of the To Lich River.
 * https://news.tuoitre.vn/3-arrested-in-hanoi-over-illegal-dumping-of-septic-waste-into-to-lich-river-103250924124112862.htm
 
+# New rules on big money transfers to take effect on November 1
+- The article's content was not included on the page.
+- https://en.vietnamplus.vn/new-rules-on-big-money-transfers-to-take-effect-on-november-1-post326960.vnp
+
+# Ninh Binh addresses challenges faced by Japanese businesses
+- Provincial leaders met with Japanese investors to listen to their concerns.
+- They also discussed solutions to challenges affecting production and business operations.
+- https://en.vietnamplus.vn/ninh-binh-addresses-challenges-faced-by-japanese-businesses-post327198.vnp
+
+# Vietnam Airlines makes further flight adjustments due to Typhoon Ragasa
+- Vietnam Airlines announced its third flight schedule adjustment due to Typhoon Ragasa.
+- The adjustments are to ensure the safety of passengers and crew members.
+- https://en.vietnamplus.vn/vietnam-airlines-makes-further-flight-adjustments-due-to-typhoon-ragasa-post327195.vnp
+
+# Reference exchange rate up 5 VND on September 25
+- The State Bank of Vietnam set the daily reference exchange rate at 25,191 VND/USD on September 25.
+- This is up 5 VND from the previous day.
+- https://en.vietnamplus.vn/reference-exchange-rate-up-5-vnd-on-september-25-post327185.vnp
+
+# State leader thanks SK Group’s contributions to Vietnamese economy
+- President Luong Cuong appreciated the practical contributions by Korean enterprises, including SK.
+- These businesses have played an important role in Vietnam’s socio-economic development.
+- https://en.vietnamplus.vn/state-leader-thanks-sk-groups-contributions-to-vietnamese-economy-post327177.vnp
+
+# Ca Mau airport to close for upgrade
+- Ca Mau Airport will be closed from 7:00 am on October 30, 2025, to 11:59 pm on October 31, 2026.
+- The closure is to implement a major expansion and upgrade project.
+- https://en.vietnamplus.vn/ca-mau-airport-to-close-for-upgrade-post327148.vnp
+
+# Korean enterprises seek investment opportunities in Can Tho
+- Can Tho is prioritizing Korean investment in high technology, innovation, IT, and renewable energy.
+- The city pledged to accompany investors and facilitate their long-term operation.
+- https://en.vietnamplus.vn/korean-enterprises-seek-investment-opportunities-in-can-tho-post327169.vnp
+
+# Ho Chi Minh City, UK eye deer ties in trade, green growth
+- Trade between HCM City and the UK topped 390 million USD in the first half of 2025.
+- The UK is now the city’s 11th largest foreign investor with a total capital exceeding 1.1 billion USD.
+- https://en.vietnamplus.vn/ho-chi-minh-city-uk-eye-deer-ties-in-trade-green-growth-post327162.vnp
+
+# Vietnam, China push forward railway cooperation projects
+- The first meeting of the Vietnam–China Joint Railway Cooperation Committee was held.
+- It aimed to implement the common perceptions reached by the two countries’ high-ranking leaders.
+- https://en.vietnamplus.vn/vietnam-china-push-forward-railway-cooperation-projects-post327155.vnp
+
+# Vietnam plans green loan boost for eco-friendly projects
+- A fixed 2% annual interest rate subsidy is proposed for green, circular economy and ESG projects.
+- This applies to private enterprises, business households and individuals.
+- https://en.vietnamplus.vn/vietnam-plans-green-loan-boost-for-eco-friendly-projects-post327089.vnp
+
+# Equity funds see biggest outflow in two years despite August market gains
+- Equity funds in Vietnam saw record withdrawals in August.
+- This marked the strongest outflow in two years despite gains in the stock market.
+- https://en.vietnamplus.vn/equity-funds-see-biggest-outflow-in-two-years-despite-august-market-gains-post327100.vnp
+
+# Vietnam moves to diversify export markets amidst global uncertainties
+- Vietnam eyes an export growth target of at least 12%.
+- This contributes to realising the GDP expansion of 8.3-8.5% this year.
+- https://en.vietnamplus.vn/vietnam-moves-to-diversify-export-markets-amidst-global-uncertainties-post327092.vnp
+
+# Deputy PM urges acceleration of progress on APEC 2027 projects
+- The Deputy PM inspected several major projects under construction for APEC 2027.
+- These include Phu Quoc International Airport and the APEC Conference Centre.
+- https://en.vietnamplus.vn/deputy-pm-urges-acceleration-of-progress-on-apec-2027-projects-post327091.vnp
+
+# Reference exchange rate falls 3 VND on September 24
+- The daily reference exchange rate was set at 25,186 VND/USD on September 24.
+- This was down 3 VND from September 23 morning.
+- https://en.vietnamplus.vn/reference-exchange-rate-falls-3-vnd-on-september-24-post327088.vnp
+
+# Vietnam Airlines, Singapore Airlines launch codeshare services
+- SIA will codeshare on Vietnam Airlines-operated flights between Singapore and Hanoi and Ho Chi Minh City.
+- Vietnam Airlines will codeshare on SIA-operated flights between Singapore and Da Nang, Hanoi, and Ho Chi Minh City.
+- https://en.vietnamplus.vn/vietnam-airlines-singapore-airlines-launch-codeshare-services-post327055.vnp
+
+# Vietjet suspends flights on September 24 due to Typhoon Ragasa
+- Ten international flights will be temporarily halted due to Typhoon Ragasa.
+- These include flights between Ho Chi Minh City and Hong Kong, and Phu Quoc and Hong Kong.
+- https://en.vietnamplus.vn/vietjet-suspends-flights-on-september-24-due-to-typhoon-ragasa-post327076.vnp
+
+# Deputy PM receives leader of Industrial Bank of Korea
+- Deputy Prime Minister Ho Duc Phoc voiced his support for the IBK’s plan to establish a new legal entity in Vietnam.
+- He hopes that the bank will continue to achieve success and contribute to the nation’s economy.
+- https://en.vietnamplus.vn/deputy-pm-receives-leader-of-industrial-bank-of-korea-post327070.vnp
+
+# Vietnam Airlines adjusts flights to China due to super Typhoon Ragasa
+- The carrier stressed that schedule changes are unavoidable due to force majeure.
+- Changes may continue to evolve depending on real-time developments.
+- https://en.vietnamplus.vn/vietnam-airlines-adjusts-flights-to-china-due-to-super-typhoon-ragasa-post327068.vnp
+
+# UK to help HCM City with urban, infrastructure, and transport development
+- The two sides will strengthen cooperation to create a foundation for collaboration in urban development.
+- This will be done through the implementation of specific programmes and projects.
+- https://en.vietnamplus.vn/uk-to-help-hcm-city-with-urban-infrastructure-and-transport-development-post327042.vnp
+
+# Deputy PM urges acceleration of Long Thanh int’l airport construction
+- Deputy PM Tran Hong Ha tasked the Ministry of Construction with stepping up inspections.
+- They will review and update construction progress, and promptly report results.
+- https://en.vietnamplus.vn/deputy-pm-urges-acceleration-of-long-thanh-intl-airport-construction-post327039.vnp
+
+# Vietnam, Singapore step up cooperation in various fields
+- Vietnam–Singapore relations are witnessing robust, substantive, and effective development.
+- The two nations officially elevated their relationship to a Comprehensive Strategic Partnership earlier this year.
+- https://en.vietnamplus.vn/vietnam-singapore-step-up-cooperation-in-various-fields-post327029.vnp
+
+# NA Party Organisation holds first congress for 2025-2030 tenure
+- The article's content was not included on the page.
+- https://en.vietnamplus.vn/na-party-organisation-holds-first-congress-for-2025-2030-tenure-post327202.vnp
+
+# Vietnamese firms accelerate AI applications
+- Around 47,000 businesses, or 13% of Vietnamese businesses, adopted AI solutions in 2024.
+- Almost 170,000, or 18%, now use AI, showing a year-on-year growth rate of 39%.
+- https://en.vietnamplus.vn/vietnamese-firms-accelerate-ai-applications-post327197.vnp
+
+# Folk cuisine finds its way onto high-end restaurant menus
+- Vietnamese folk dishes are being featured in upscale restaurants.
+- Dishes like “bánh xèo” and “bún đậu mắm tôm” are highlighted by international magazines.
+- https://en.vietnamplus.vn/folk-cuisine-finds-its-way-onto-high-end-restaurant-menus-post326734.vnp
+
+# Vietnam attends ASEAN Defence Senior Officials’ Meeting in Malaysia
+- Vietnam voiced its confidence that Malaysia will successfully chair both ADMM and ADMM-Plus.
+- This will strengthen collective solidarity and capacity within ASEAN.
+- https://en.vietnamplus.vn/vietnam-attends-asean-defence-senior-officials-meeting-in-malaysia-post327193.vnp
+
+# 80th National Day reception highlights Vietnam–EU friendship, cooperation
+- The event served as a platform to present Vietnam as a dynamic, open, and friendly country.
+- It reinforced partnerships with Belgium, Luxembourg, and the European Union.
+- https://en.vietnamplus.vn/80th-national-day-reception-highlights-vietnameu-friendship-cooperation-post327192.vnp
+
+# Vietnam, Oman strengthen friendship, comprehensive cooperation
+- The two economies are complementary and hold great potential for cooperation.
+- They committed to boosting exchanges at all levels and expanding trade and investment ties.
+- https://en.vietnamplus.vn/vietnam-oman-strengthen-friendship-comprehensive-cooperation-post327191.vnp
+
+# Vietnam marks 80th National Day in Algeria, highlighting new prospects for cooperation
+- Vietnam’s Ambassador to Algeria underlined the country’s strong desire to deepen its historic friendship with Algeria.
+- This comes as Vietnam continues to expand ties with African partners.
+- https://en.vietnamplus.vn/vietnam-marks-80th-national-day-in-algeria-highlighting-new-prospects-for-cooperation-post327189.vnp
+
+# Deputy PM calls for action to deliver on SDG financing at UN Summit
+- Deputy PM Bui Thanh Son urged nations to turn commitments into actions and pool resources for sustainable development.
+- He also called to address the debt crisis, and strengthen the Global South's role in reforming the financial system.
+- https://en.vietnamplus.vn/deputy-pm-calls-for-action-to-deliver-on-sdg-financing-at-un-summit-post327187.vnp
+
+# Typhoon Ragasa forecast to make landfall at 13:00 on September 25
+- Typhoon Ragasa is likely to weaken into a tropical depression when it lands.
+- It is forecast to make landfall in the northeastern part of North Vietnam on September 25 afternoon.
+- https://en.vietnamplus.vn/typhoon-ragasa-forecast-to-make-landfall-at-1300-on-september-25-post327188.vnp

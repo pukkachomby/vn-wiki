@@ -334,3 +334,12 @@
 - Typhoon Ragasa is likely to weaken into a tropical depression when it lands.
 - It is forecast to make landfall in the northeastern part of North Vietnam on September 25 afternoon.
 - https://en.vietnamplus.vn/typhoon-ragasa-forecast-to-make-landfall-at-1300-on-september-25-post327188.vnp
+
+# Hanoi pilots AI-integrated traffic cameras
+* AI-integrated traffic surveillance cameras are being tested on several streets in Hanoi.
+* Nearly 1,800 traffic violations were detected by two cameras in just 12 hours.
+* Violations included not wearing helmets, running red lights, and driving against traffic.
+* Police will use registration databases to identify owners and issue penalties for the violations.
+* Thousands of similar cameras are planned for installation across Hanoi and nationwide.
+* Financial incentives for citizens reporting traffic violations are being considered.
+* https://news.tuoitre.vn/hanoi-pilots-ai-integrated-traffic-cameras-10325092512172523.htm

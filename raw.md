@@ -186,3 +186,4 @@
 * The dumping caused strong odors, severe pollution, and damaged local infrastructure.
 * This act violated city policies aimed at improving the water quality of the To Lich River.
 * https://news.tuoitre.vn/3-arrested-in-hanoi-over-illegal-dumping-of-septic-waste-into-to-lich-river-103250924124112862.htm
+

@@ -344,3 +344,23 @@
 * Financial incentives for citizens reporting traffic violations are being considered.
 * https://news.tuoitre.vn/hanoi-pilots-ai-integrated-traffic-cameras-10325092512172523.htm
 
+# Hanoi's AI cameras expose 1,400 red-light violations in half a day
+* A trial of AI-powered traffic cameras in Hanoi flagged over 1,400 red-light violations in only half a day.
+* Launched on Pham Van Bach Street, the system uses AI to automatically detect and report violations to police.
+* From midnight to noon on the first day, 1,339 motorbikes and 113 cars were recorded running red lights.
+* The cameras also detected 343 riders without helmets and three cases of motorists driving against traffic flow.
+* Car drivers face fines of VND18-20 million ($720-800) and four demerit points for running a red light.
+* If an accident is caused, the penalty for car drivers increases to VND22 million and 10 demerit points.
+* Motorcyclists face fines of VND4-6 million ($160-240) for the same violation.
+* https://e.vnexpress.net/news/news/traffic/hanoi-s-ai-cameras-expose-1-400-red-light-violations-in-half-a-day-4943726.html
+
+# Vietnam might be last trench against Grab’s regional dominance
+* Vietnam may be the final battleground in the Southeast Asian ride-hailing war.
+* Homegrown players Xanh SM and Be are the main forces against Grab's regional dominance.
+* Grab's acquisition of Uber's Southeast Asia operations in 2018 solidified its market position.
+* Xanh SM, backed by Vingroup, quickly became Grab's top competitor in Vietnam after its 2023 launch.
+* Grab is reportedly in talks to acquire GoTo, its last major regional rival, for approximately $7 billion.
+* The potential merger faces resistance from regulators and drivers in Indonesia over antitrust and job loss fears.
+* If the GoTo acquisition succeeds, Vietnam is likely the next strategic target for Grab's expansion.
+* A Q1 2025 report shows Xanh SM leading Vietnam's market with a 40% share, followed by Grab at 36% and Be at 6%.
+* https://news.tuoitre.vn/vietnam-might-be-last-trench-against-grabs-regional-dominance-103250814152412042.htm

@@ -343,3 +343,4 @@
 * Thousands of similar cameras are planned for installation across Hanoi and nationwide.
 * Financial incentives for citizens reporting traffic violations are being considered.
 * https://news.tuoitre.vn/hanoi-pilots-ai-integrated-traffic-cameras-10325092512172523.htm
+
